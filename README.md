@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on a finance tracker app
+🔭 Gazing at the stars
 
 
 ## 🌐 Socials:
